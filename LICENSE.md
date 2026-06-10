@@ -1,4 +1,4 @@
-# 
+# نخبة pancakeswap trading bot سير العمل لـ Mac OS | مجاني pancakeswap trading bot سير العمل لـ PC Windows. مع مستمعي الأحداث و تتبع المحفظة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
